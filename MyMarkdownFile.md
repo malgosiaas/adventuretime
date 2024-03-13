@@ -1,3 +1,5 @@
+### **Ranking top 20 strongest Adventure Time characters**  
+
 ## **20. Princess Bubblegum**
   Princess Bubblegum lands at the bottom of this list because she's probably the least naturally-gifted fighter, and she doesn't show many signs of great strength over the course of the show. She employs Finn and Jake to be her muscle in the Candy Kingdom and has a royal guard to help out as well. Still, Bubblegum deserves a spot here because of her intelligence and leadership skills.  She also develops elemental powers, but she never gets a great handle on them.
 
