@@ -23,7 +23,7 @@ description: >- # this means to ignore newlines until "baseurl:"
   Website about strongest Adventure time characters. Created by Gosia Szeler.
 baseurl: /MyMarkdownFile
 baseurl2: "/other"
-url: "http://malgosiaas.github.io/adventuretime" # the base hostname & protocol for your site, e.g. http://example.com
+url: "https://malgosiaas.github.io/adventuretime" # the base hostname & protocol for your site, e.g. http://example.com
 
 # Build settings
 theme: minima
