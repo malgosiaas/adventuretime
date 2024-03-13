@@ -21,7 +21,7 @@
 title: Example Jekyll site using GitLab Pages
 description: >- # this means to ignore newlines until "baseurl:"
   Website about strongest Adventure time characters. Created by Gosia Szeler.
-baseurl1: /MyMarkdownFile
+baseurl: /MyMarkdownFile
 baseurl2: "/other"
 url: "http://malgosiaas.github.io/adventuretime" # the base hostname & protocol for your site, e.g. http://example.com
 
