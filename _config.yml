@@ -26,9 +26,9 @@ baseurl2: "/other"
 url: "https://malgosiaas.github.io/adventuretime" # the base hostname & protocol for your site, e.g. http://example.com
 
 # Build settings
-#theme: minima
-#plugins:
-#  - jekyll-feed
+theme: jekyll-theme-minimal
+plugins:
+  - jekyll-feed
 
 # Exclude from processing.
 # The following items will not be processed, by default.
