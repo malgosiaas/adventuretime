@@ -28,7 +28,7 @@
 ## **15. Huntress Wizard**
   Huntress Wizard is another character, like Lady Rainicorn and others on this list, who doesn't get much screen time over the 10 seasons of "Adventure Time." However, she makes every appearance count. She's perhaps the coolest character in the show due to her laid-back confidence and her many skills, and she's certainly also one of the strongest.
 
-![alt text](https://static.wikia.nocookie.net/adventuretimesuperfans/images/c/c4/Tumblr_mbusclY4eC1rwbikfo1_500.gif/revision/latest?cb=20121125042605)
+![alt text](https://steamuserimages-a.akamaihd.net/ugc/943937964027997157/28C8471C83E0A0C6B81613A2C1CE8AA32BFDB573/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
   
 ## **14. Susan Strong**
   It might be obvious, but of course Susan Strong was going to end up on this list of the strongest "Adventure Time" characters. "Strong" is literally her name. Beyond that, though, we can safely say that Susan — also known as Kara (her original island name from before she lost her memories) and Seeker XJ-7-7 — is simply one of the most powerful characters in the show because of her literal strength. In fact, Susan may be the most purely strongest character in all of "Adventure Time," especially after her transformation into an even larger and more powerful version of herself in "Reboot."
@@ -48,7 +48,7 @@
 ## **11. Billy**
   In "His Hero," the first episode in which we meet Billy, he's described in a song as "the greatest warrior ever." We hear about his exploits, which include slaying an evil ocean, casting the Lich King down, saving a damsel from a Firecount, and also fighting a bear. Billy may not have magical powers, but of the non-magical characters in "Adventure Time," it's pretty clear that he's the strongest. After all, he's a warrior of legend who's considered to be the greatest ever.
 
-![alt text](https://static.wikia.nocookie.net/adventuretimewithfinnandjake/images/a/ac/S1e25_Billy_in_his_cave.png/revision/latest/scale-to-width-down/1000?cb=20140109215804)
+![alt text](https://pm1.aminoapps.com/8813/b85d72382f9810b077b908498b1d31836f5909c1r1-1000-521v2_hq.jpg)
   
 ## **10. Patience St. Pim**
   Patience St. Pim is the main reason that the "Elements" miniseries happens in "Adventure Time." She introduces the concept of elementals to the lore of the show, and she's also an incredibly powerful villain. When she's first introduced in "Elemental," she easily incapacitates Finn and Jake, showing that her ice powers are far greater than Ice King's. We also learn that she froze herself for thousands of years, exhibiting a strength of will that's equally impressive and frightening.
@@ -78,7 +78,7 @@
 ## **5. Marceline**
   Marceline the Vampire Queen was born half-human and half-demon. Over the course of her vampire-hunting — both in the past and again throughout "Stakes" — she uses her inherited soul-sucking power to absorb the powers of the vampires she kills. Finally, she's turned into an immortal vampire herself after being bitten by the Vampire King (as seen in "May I Come In") and absorbing his pure vampire essence (shown in "The Dark Cloud"). To say the very least, she's got a lot going on when it comes to the "strongest" conversation.
 
-![alt text](https://static.wikia.nocookie.net/adventuretimewithfinnandjake/images/9/93/Marcie.gif/revision/latest?cb=20111126021842)
+![alt text](https://i.pinimg.com/originals/17/82/ea/1782eabe5ce2080491169088433444b1.gif)
   
 ## **4. The Lich**
   The Lich is the embodiment of the death of all things, so of course he lands high on this list of the strongest characters in "Adventure Time." Yes, he's defeated by characters much lower on this ranking like Billy (as we learn in "His Hero") and Finn (in "Mortal Folly"), but because he's a cosmic entity, he keeps on returning even when he seems to have been defeated. This longevity also plays a major role in the Lich's high ranking here.
@@ -93,7 +93,7 @@
 ## **2. Gunter/Orgalorg**
   Gunter is a veteran of physical combat (or at least violence), whether that be casually tasing Ice King and Finn in "Princess Potluck," breaking bottles in "Still" and "Reign of Gunters," or fearlessly slapping Hunson Abadeer after being named "by far the most evil thing [he's] encountered" in "It Came from the Nightosphere." Hunson's comment seems to be a simple joke, until much later when it's revealed that Gunter is in fact the cosmic entity known as Orgalorg in the episode "Orgalorg."
 
-![alt text](https://static.wikia.nocookie.net/adventuretimewithfinnandjake/images/0/08/Orgalorg_comet.png/revision/latest/scale-to-width-down/1000?cb=20150603231049)
+![alt text](https://m.media-amazon.com/images/M/MV5BNDU2YmMzODItNjE1Ni00ZDdjLTkwNWYtOGFmNzhiOWI1MTA1XkEyXkFqcGdeQXVyMzE5MDUxODM@._V1_.jpg)
   
 ## **1. GOLB**
   GOLB only significantly appears in one episode of "Adventure Time," but it's the extended series finale "Come Along with Me," so it certainly makes an impact. GOLB surpasses the cosmic entities that make up the last few entrants on this list and is in fact a deity. GOLB is the embodiment of chaos, GOLB is pure discord, and as Simon explains in a flashback in "Come Along With Me," its "presence is felt in every crevice where chaos lurks." A testament to GOLB's power is that the Lich refers to himself as "the last scholar of GOLB" in "Whispers," so GOLB is the ancient evil that the embodiment of all death worships and studies.
