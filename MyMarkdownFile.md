@@ -1,16 +1,16 @@
 # **Ranking top 20 strongest Adventure Time characters**  
 
-## **20. Princess Bubblegum - [Duck Duck Go](malgosiaas.github.io/adventuretime/20)**
+## **20. Princess Bubblegum - [Duck Duck Go](20)**
   Princess Bubblegum lands at the bottom of this list because she's probably the least naturally-gifted fighter, and she doesn't show many signs of great strength over the course of the show. She employs Finn and Jake to be her muscle in the Candy Kingdom and has a royal guard to help out as well. Still, Bubblegum deserves a spot here because of her intelligence and leadership skills.  She also develops elemental powers, but she never gets a great handle on them.
 
 ![alt text](https://static1.moviewebimages.com/wordpress/wp-content/uploads/2022/08/Princess-Bubblegum.png)
-  
-## **19. Ice King - [Duck Duck Go](malgosiaas.github.io/adventuretime/19)**
+ 
+## **19. Ice King - [Duck Duck Go](19)**
   Ice King has significant magical abilities that he can deploy in a variety of ways, but what makes him land so low on this list is that he consistently gets beaten by a human teenager with nothing but a sword and a strong will.
 
 ![alt text](https://sites.northwestern.edu/sarahshamim/files/2021/10/ice-king.gif)
   
-## **18. Finn - [Duck Duck Go](malgosiaas.github.io/adventuretime/18)**
+## **18. Finn - [Duck Duck Go](18)**
   Finn is a brave hero. He saves princesses, serves kingdoms, and always strives to do the right thing. But he's still just a human in a world full of magical creatures. What makes Finn land above Princess Bubblegum and Ice King isn't any special fighting ability, but his determination.
 
 ![alt text](https://www.looper.com/img/gallery/15-most-popular-adventure-time-characters-ranked/l-intro-1647619581.jpg)
